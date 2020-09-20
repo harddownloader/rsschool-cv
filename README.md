@@ -1,1 +1,1 @@
-rsschool-cv
+https://https://github.com/harddownloader/rsschool-cv/cv
